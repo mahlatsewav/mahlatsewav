@@ -1,5 +1,3 @@
-👤 mahlatsewav https://linktr.ee/lostboywav
-
 💻 Software Engineering Student </br>
 🎹 Music Producer </br>
 
