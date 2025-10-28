@@ -1,4 +1,4 @@
-💻 Software Engineering Student </br>
+🎓 Software Engineer </br>
 🎹 Music Producer </br>
 
 ## 🌐 Socials:
